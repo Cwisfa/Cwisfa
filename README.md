@@ -2,7 +2,6 @@
  
 👋 Christopher <br>
 💻 Junior Software Engineer for Compare the Market <br>
-💪 God among men <br>
 🃏 Awesome at bad jokes <br>
 🕹 Gamer <br>
 
