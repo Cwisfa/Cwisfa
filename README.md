@@ -2,9 +2,6 @@
  
 👋 Christopher <br>
 💻 Junior Software Engineer for Compare the Market <br>
-🃏 Awesome at bad jokes <br>
-🕹 Gamer <br>
-
  
 <hr>
 
